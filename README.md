@@ -1,6 +1,6 @@
 ## Welcome to Raiderz 
 
-Clash Royale Tag: #2GYUOQ8U
+We are Reddit Raiderz on Clash Royale Tag: #2GYUOQ8U
 
 ### Join us on Discord 
 
