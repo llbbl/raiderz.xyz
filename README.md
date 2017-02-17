@@ -1,6 +1,6 @@
 ## Welcome to Raiderz 
 
-Clash Royale Tag: #2GPLC8L2
+Clash Royale Tag: #2GYUOQ8U
 
 ### Join us on Discord 
 
