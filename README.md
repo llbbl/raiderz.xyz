@@ -1,6 +1,6 @@
 ## Welcome to Raiderz 
 
-We are Reddit Raiderz on Clash Royale Tag: #2GYUOQ8U
+We are tsussunpolis on Shop Heroes
 
 ### Join us on Discord 
 
