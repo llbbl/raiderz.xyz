@@ -1,7 +1,7 @@
 ## Welcome to Raiderz 
 
-* We are tsussunpolis on Shop Heroes 
-  * [Shop Heroes wiki](http://shop-heroes.wikia.com/wiki/Shop_Heroes_Wiki)
+We are tsussunpolis on Shop Heroes 
+* [Shop Heroes wiki](http://shop-heroes.wikia.com/wiki/Shop_Heroes_Wiki)
   
 
 ### Join us on Discord 
